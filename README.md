@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @paniikcs (Global Elite)
+- 👋 Hi, I’m @paniikcs (ex-Global Elite)
 - 👀 I’m interested in - GAMING 
 - 🌱 I’m currently learning - GAMING & Every coding language @Codecademy
 - 💞️ I’m looking to collaborate on - GAMING
