@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @paniikcs (ex-Global Elite)
 - 👀 I’m interested in - Learning Code & Gaming 
-- 🌱 I’m currently learning - Every coding language @Codecademy
+- 🌱 I’m currently learning - Every programming language @Codecademy
 - 💞️ I’m looking to collaborate on - exciting projects
 - 📫 How to reach me - Twitter: @paniikcs / Tiktok: @paniikcs / Insta: @paniikcs / Twitch.tv/paniikcs
 
